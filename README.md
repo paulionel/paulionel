@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Paul Steiner (@paulionel)
-- 🌱 I’m currently learning computer science @ WGU
 - 📫 How to reach me paul.steiner98@gmail.com
